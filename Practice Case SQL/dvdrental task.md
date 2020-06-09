@@ -1,1 +1,0 @@
-![Task](https://user-images.githubusercontent.com/61892969/84111543-5ac2a500-aa51-11ea-8291-8aaedeb8a14f.PNG)
